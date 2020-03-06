@@ -1,3 +1,3 @@
 Bite me.
 
-[[img src="https://gunaxin.com/woody-hayes-turtle-bite-genitals"]]
+![biting woody](https://gunaxin.com/woody-hayes-turtle-bite-genitals)
